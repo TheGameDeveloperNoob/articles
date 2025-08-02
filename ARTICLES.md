@@ -1,4 +1,4 @@
-# Shooting at Bar in Anaconda, Montana.
+# Shooting at Bar in Anaconda, Montana. (Aug, 1, 2025)
 Gunshots fired, thuds of bodies, and the screams of innocent people. Police found 4 
 people pronounced dead at the scene after a shooting at a bar in Anaconda, Montana.
 The shooting took place at approximately  10:30 AM. The current supect for the crime
