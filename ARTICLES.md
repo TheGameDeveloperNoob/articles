@@ -1,3 +1,12 @@
+# A Teacher Highly Suspected of Murder and Grooming Gets Arrested. (Aug, 2, 2025)
+Andrew J. McGann, an elementary school teacher in Texas that often had
+placed an off-putting mood for many of the students parents. What worried
+the parents the most, was the fact that the teacher would give candy and
+other rewards to only the girls. Often times she encoureged girls to stay
+in the classroom at lunch time and even sit on his lap. He was later
+suspected of the murder of a couple in Devils Den State Park. He was
+then arrested.
+
 # Shooting at Bar in Anaconda, Montana. (Aug, 1, 2025)
 Gunshots fired, thuds of bodies, and the screams of innocent people. Police found 4 
 people pronounced dead at the scene after a shooting at a bar in Anaconda, Montana.
