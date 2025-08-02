@@ -7,7 +7,7 @@ in the classroom at lunch time and even sit on his lap. He was later
 suspected of the murder of a couple in Devils Den State Park. He was
 then arrested.
 
-# Shooting at Bar in Anaconda, Montana. (Aug, 1, 2025)
+# Shooting at a Bar in Anaconda, Montana. (Aug, 1, 2025)
 Gunshots fired, thuds of bodies, and the screams of innocent people. Police found 4 
 people pronounced dead at the scene after a shooting at a bar in Anaconda, Montana.
 The shooting took place at approximately  10:30 AM. The current supect for the crime
